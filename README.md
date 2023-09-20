@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @mariaxp2324
-- 👀 eu gosto de sair 
 - 🌱 tenho 15 anos
 - 💞️ solteira
 - 📫 meu insta: @maria_rodrigues_i
